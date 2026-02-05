@@ -1,2 +1,1 @@
-# Mugisha-Jonathan
-i created a repository
+Am Jonathan and am developer and  Graphic Designer Hire Me
